@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning and having fun.
 - 🌱 I’m currently taking the first steps toward teaching myself how to code.
 - 💞️ I’m looking to collaborate on introductory projects for noobs.
-- 📫 How to reach me- maybe don't?
+- 📫 How to reach me- www.linkedin.com/kaylapedy
 - 😄 Pronouns: She/Her/They
 - ⚡ Fun fact: Studying Administrative Office Systems Software Support Specialization.
 
